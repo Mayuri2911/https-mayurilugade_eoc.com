@@ -1,1 +1,1 @@
-# https-mayurilugade_eoc.com
+# https-mayurilugade_personalblog.com
